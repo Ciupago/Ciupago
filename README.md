@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ciupago
+- 🔧 Junior Developer
+- 👑 15 yo
+- 🧠 My Discord Server: 
